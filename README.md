@@ -1,0 +1,4 @@
+- 👋 oá meu nome é @tainanaitzhe
+- 👀 meu email de contato é taina.naitzhe@escola.pr.gov.br
+- 👀 eu estou interessado em aprender nivas linguagens 
+- 🌱 eu estou aprendendo a progamar 
